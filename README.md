@@ -6,4 +6,3 @@
 - 📫 How to reach me: surbhisoomnathe7777@gmail.com.
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Love to watch K-dramas and K-pop.
--->
