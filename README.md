@@ -1,4 +1,4 @@
-### Hi, I’m Surbhi Somanathe 👋
+### Hi, I’m Surbhi Somanathe! 👋
 
 - 🌱  I’m currently learning Full Stack Development.
 - 👯 I’m looking to collaborate with open source developers.
